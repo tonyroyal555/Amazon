@@ -1,3 +1,4 @@
 hi how are you 
 how was your day
-looking nice 
+looking nice
+have a nice day 
